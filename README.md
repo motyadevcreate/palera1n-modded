@@ -1,4 +1,4 @@
-# palera1n для windows с GUI, и motura1n
+# palera1n для windows с GUI, и motulen1x
 
 #### Лучший, лёгкий способ Jailbreak-нуть свой iPhone!
 
